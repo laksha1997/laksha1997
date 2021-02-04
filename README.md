@@ -17,11 +17,11 @@ Here are some ideas to get you started:
 
 ### Hello there, I'm [Laksha](https://www.instagram.com/lakshina97/) 👋
 
-## I'm a drawing lover and gardening!
+## I'm a drawing and gardening lover!
 
 - 🔭 I'm currently working on my new website, but 
 I don't know when I will publish it because I am always dissatisfied
 - 🌱 I'm currently learning how to create digital content on the web
 - 💯 2021 Goals: find a job to be able to live alone
 - 📫 How to reach me: [send an email](lakshina.caforio@gmail.com)
-- ⚡ Fun fact: I have two geese as companion animals
+- ⚡ Fun fact: I have two geese as pet
