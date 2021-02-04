@@ -15,13 +15,12 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-### Hello there, I'm [Laksha](https://www.instagram.com/lakshina97/) 👋
+### Piacere di conoscerti! mi chiamo [Laksha](https://www.instagram.com/lakshina97/) 👋
 
-## I'm a drawing and gardening lover!
+## Sono un'appassionata di disegno, fai da te e giardinaggio!
 
-- 🔭 I'm currently working on my new website, but 
-I don't know when I will publish it because I am always dissatisfied
-- 🌱 I'm currently learning how to create digital content on the web
-- 💯 2021 Goals: find a job to be able to live alone
-- 📫 How to reach me: [send an email](lakshina.caforio@gmail.com)
-- ⚡ Fun fact: I have two geese as pet
+- 🔭 In questo periodo sto lavorando alla creazione di un mio sito internet, anche se non so quando riuscirò a pubblicarlo perchè sono sempre insoddisfatta del risultato
+- 🌱 Sto cercando di imparare a creare contenuti digitali per il web e per questo sto seguendo dei corsi di formazione
+- 💯 2021 Goals: trovare un lavoro che mi permetta di diventare economicamente indipendente e andare a vivere da sola
+- 📫 Rimaniamo in contatto: [Scrivimi all'email](lakshina.caforio@gmail.com)
+- ⚡ Fun fact: Come animali da compagnia ho due ochette: Adelino e Guendalina 
